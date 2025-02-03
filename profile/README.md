@@ -1,4 +1,4 @@
-## Filmek~HU Jókislány ((2025))
+## Filmek~HU Jókislány ((2025)) T𝚎lj𝚎s F𝚒lm V𝙸D𝙴A ~ M𝚊gy𝚊rul
 
 # .github
 
